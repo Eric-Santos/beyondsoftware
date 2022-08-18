@@ -1,1 +1,1 @@
-Join the team or lead it.
+Challenge yourself. Create something that matters
